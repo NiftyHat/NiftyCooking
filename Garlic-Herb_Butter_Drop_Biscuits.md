@@ -14,6 +14,7 @@
 
 Sift flour, baking powder, white sugar, cream of tartar, 1/3 teaspoon garlic powder, and salt together in a large bowl. Mash unsalted butter cubes into the flour mixture with a pastry cutter or large fork until coarsely blended. 
 > The softer the butter is less flakey and more 'chewy' your biscuits will come out.
+
 Mix Cheddar cheese and Italian seasoning into the flour mixture.
 Preheat oven to 400 degrees F (200 degrees C). Grease a baking sheet.
 Pour milk over the flour mixture while stirring until you get a tough and sticky dough. Drop dough by the tablespoon onto the prepared baking sheet.
